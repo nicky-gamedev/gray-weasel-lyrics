@@ -21,3 +21,22 @@ Being a pillow and a bag
 What bit you?
 I did that question again.
 So carelessly
+I just hate the silence
+
+Rubbing skin makes bruises
+But darling, our skins were soft
+We can't be so harsh on ourselves
+Otherwise, we'll be reduce to dust
+
+I miss the way we smiled
+I miss the way we kissed
+I miss the way i felt at home
+But now we both feel like we need to go
+
+But I still love you
+And i dont want you to go
+But i cant stand
+Being a pillow and a bag
+
+Cant you understand
+That's your last chan
