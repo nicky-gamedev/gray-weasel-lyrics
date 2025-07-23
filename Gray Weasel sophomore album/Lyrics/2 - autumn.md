@@ -4,23 +4,27 @@ there's no more nice things
 in the winter for me
 
 the summer comes, brings the heat
-its so excessive, i act strange
+its so excessive i get so tired
+but when the winter comes
+i want so bad to feel the sweat again
 
+this cycle repeats, every year
+i wasn't made to live like this
+but what is the other option?
+im not strong enough to move the stars
 
-autumn can come and kill me
+so autumn can come and kill me
 I don't really care
 there's no more nice things
 in the winter for me
 
-i guess, it was just as planned
-if I'm gonna live till 27
-i need a brief moment of happiness
-so i can feel the pain and miss everything 
+in the winter for me
+in the winter for me
+in the winter for me
+in the winter
 
-i miss your voice on my ear
-i miss the feel of your skin
-i miss pillow talks by the morning 
-just vanished away with no clues, so
+my shivery spine misses your sun
+im tired of 
 
 autumn can come and kill me
 I don't really care
