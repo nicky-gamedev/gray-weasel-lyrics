@@ -16,8 +16,16 @@ my body kept going
 and everytime i think about dying
 i feel alive again
 
-my shattered heart pieces
-are now all over the place
+my shattered heart pieces cut my feet
+as i walked barefoot to your room
+trying to reconcile
+trying to make sense
 
+theres nothing left to say
+i only feel like running away
+but i have nowhere to run
+all my routes are blocked
+
+i used to fight, i used to impose
 
 
