@@ -38,5 +38,7 @@ And i dont want you to go
 But i cant stand
 Being a pillow and a bag
 
-Cant you understand
-That's your last chan
+Taking punches
+Until im soft enough 
+But somethings ain't meant
+To be layed down on.

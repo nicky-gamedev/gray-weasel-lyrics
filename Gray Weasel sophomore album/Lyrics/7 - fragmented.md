@@ -16,4 +16,8 @@ my body kept going
 and everytime i think about dying
 i feel alive again
 
+my shattered heart pieces
+are now all over the place
+
+
 
