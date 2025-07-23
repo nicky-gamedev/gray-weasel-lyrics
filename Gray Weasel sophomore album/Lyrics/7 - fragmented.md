@@ -27,5 +27,22 @@ but i have nowhere to run
 all my routes are blocked
 
 i used to fight, i used to impose
+i used to write songs and be proud
+but there's nothing left anymore
+just an empty shell
 
+and everytime i think about dying
+i feel alive again
+and everytime i think about leaving
+its you who makes me stay
+
+and everywhere i look 
+theres a piece of me
+i already changed this place
+and thats so hard to undo
+
+as small as a flower in a garden
+as big as a slaughtered queen
+just keep changing your place
+it's the small acts that make us immortal.
 
