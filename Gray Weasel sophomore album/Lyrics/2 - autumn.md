@@ -4,7 +4,8 @@ there's no more nice things
 in the winter for me
 
 the summer comes, brings the heat
-sometimes is hell but its less lonely
+its so excessive, i act strange
+
 
 autumn can come and kill me
 I don't really care
