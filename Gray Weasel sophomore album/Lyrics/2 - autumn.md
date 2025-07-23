@@ -24,7 +24,9 @@ in the winter for me
 in the winter
 
 my shivery spine misses your sun
-im tired of 
+im tired of shaking and resting in blankets
+i know the fire is long gone
+there's nothing left to burn
 
 autumn can come and kill me
 I don't really care
