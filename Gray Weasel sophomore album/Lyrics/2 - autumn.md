@@ -3,15 +3,8 @@ I don't really care
 there's no more nice things
 in the winter for me
 
-for us, we once, had it all
-we struggled but our flag
-stills trembling on the wind
-that's carries summer to the north
-
-but destiny is unfair
-and it hates my guts enough
-to give me candy with spikes
-it bleeds all over the place now, so
+the summer comes, brings the heat
+sometimes is hell but its less lonely
 
 autumn can come and kill me
 I don't really care
